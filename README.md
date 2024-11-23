@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @guhitprince
+- 👋 Hi, I’m Artisty
 - 👀 I’m interested in art and graphic design
 - 🌱 I’m currently learning coding 
 
